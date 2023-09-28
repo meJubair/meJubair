@@ -1,4 +1,4 @@
-### Margit Tennosaar - @margittennosaar
+### JubairH - @meJubair
 
 Hi, I am Jubair, a web development student at [Business College Helsinki](https://en.bc.fi/). 
 
