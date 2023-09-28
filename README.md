@@ -9,4 +9,4 @@ Feel free to find me on:
 - [Instagram](https://www.instagram.com/meJubair/)
 
 
-![](https://komarev.com/ghpvc/?username=meJubair&color=gray)
+![](https://komarev.com/ghpvc/?username=meJubair&color=blue)
